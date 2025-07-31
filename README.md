@@ -1,0 +1,1 @@
+# OracleCloudInfrastructure2025CertifiedAlFoundationsAssociate
